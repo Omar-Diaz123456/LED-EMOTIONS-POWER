@@ -3,3 +3,4 @@ LED: Emotions Power es una idea de negocio enfocada al bienestar emocional, con 
 
 Derly Yulieth Jimenez Ochoa
 Karol stephy lopez contreras
+Paula Alejandra Castillo Peña
